@@ -1,3 +1,1 @@
-# this is Incredible Chandigarh #
-
-# Chandigarh is Incredible. Also, Chitkara. #
+# This is Incredible Chandigarh #
